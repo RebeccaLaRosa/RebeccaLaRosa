@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @RebeccaLaRosa
+- 👋 Hi, I’m @Becca 
 - 
 - 👀 I’m interested in ...Computers, Music, dance, art, hiking, gaming and animals.
 - 🌱 I’m currently learning coding at Coding Dojo
